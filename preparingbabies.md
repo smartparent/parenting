@@ -1,6 +1,7 @@
 # Prepare these items for your baby's needs 
 
-Every babies need somethings to wear for protect them againts some condition. If babies getting cold that usualy cause of problem about he wear. In this article you will get some information about things must have and wear for your baby. Check this out !
+Every babies need somethings to wear for protect them againts some condition. If babies getting cold that usualy cause of problem about he wear. In this article you will get some information about things must have and wear for your baby. From deep interviews with author of [mamapapa.id](https://mamapapa.id) we collect some information about items that realy needs for your babies.
+Check this out !
 
 ## Baby Clothes
 Clothing should be tailored to the weather in your area. Do not make the knowledge of ancestors and knowledge of other areas as the only reference.
